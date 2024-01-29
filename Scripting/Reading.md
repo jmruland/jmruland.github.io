@@ -1,1 +1,0 @@
-https://www.flickr.com/groups/39436080@N00/discuss/72157717405605247/
